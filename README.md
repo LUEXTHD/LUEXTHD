@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @LUEXTHD
+- Im actually new so.. just Hi
